@@ -9,4 +9,4 @@
 ![IMG-20211008-WA0002](https://user-images.githubusercontent.com/79001314/190068321-8965cec6-2f7f-4b3c-889c-f802238a8b52.jpg)
 ![IMG-20211008-WA0005](https://user-images.githubusercontent.com/79001314/190068362-ba26701a-6215-4ba7-b323-f4c99000cb56.jpg)
 ![IMG-20211008-WA0006](https://user-images.githubusercontent.com/79001314/190068474-bee519ad-fcd1-4b69-aa87-153628a77cc0.jpg)
-![IMG-20211008-WA0006](https://user-images.githubusercontent.com/79001314/190068507-d304969d-f196-43b0-9208-d4fa2d1ad814.jpg)
+
